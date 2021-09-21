@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SambaDeJane
+- 🕺I'm A Just Dance Fan
+- 💫I Like Pokémon And Roblox
+- 📃Mission: Complete The Alola PokéDex
+- 👾Role: Champion Of Alola And Kalos
+- ♊ Pisces Is Me
